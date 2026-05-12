@@ -1,4 +1,4 @@
-# 
+# Enhance MathType for PC | MathType for Windows with MathType for PC | MathType for Windows elite Extension: scripting & 3D-plotting, the #1 extension. Includes scripting and
 
 
 
